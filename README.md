@@ -1,1 +1,1 @@
-# Travel-Journal-Privacy-Policy
+# Privacy-Policy
